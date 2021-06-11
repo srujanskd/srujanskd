@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @srujanskd
+- 👀 I’m interested in Everything
+- 🌱 I’m currently learning BTech in Computer Science
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me-  mail me @ srujanskd@gmail.com
